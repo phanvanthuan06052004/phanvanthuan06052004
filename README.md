@@ -1,4 +1,4 @@
-					# Hello bro💪, I'm Thuan
+# Hello bro💪, I'm Thuan
 ## welcome to my profile
 
 * 👨🏻‍🎓 I'm a student at HCM University Of Technology And Education (HCMUTE)
